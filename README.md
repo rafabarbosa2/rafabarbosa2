@@ -12,4 +12,4 @@ Meu nome Rafael Barbosa
 
  @rafabarbosa2
 
-![]()https://media1.tenor.com/m/PmiyRvlKawMAAAAC/gloria-groove-sorria.gif
+![](https://media1.tenor.com/m/PmiyRvlKawMAAAAC/gloria-groove-sorria.gif)
